@@ -6,6 +6,6 @@
 
 微信号：eb1a_horizon
 
-小红书：@地平线
+小红书：[@地平线](https://www.xiaohongshu.com/user/profile/5fb60b030000000001002437)
 
 <img src="./地平线-微信二维码.jpg" width="400" />
